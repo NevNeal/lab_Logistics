@@ -92,6 +92,10 @@ I will try to respond to urgent emails within 6 hours, but it may take up to 24 
 
 Each year we will have an evaluation meeting. During this meeting, we will go through your cv to determine things that are going well and areas for improvement. I will tell you if I am satisfied with your progress and help you to identify steps to take next. This is also an opportunity for you to let me know what I can do to help you succeed (e.g., more guidance? more independence? meet more/less often?)
 
+### Graduate School Milestones
+
+In addition to an evaluation meeting, graduate students are expected to reach particular milestones and goals in accordance with the Botany department's PhD. and MS. requirements. Those are best outlined on the UW-Madison Botany website: https://botanyibio.sites.wisc.edu/botany-graduate-program/. Graduate students will be expected to keep track of and complete these requirements on time.
+
 
 ## Lab space
 
